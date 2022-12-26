@@ -1,0 +1,1 @@
+# Licence-for-every-service-for-GN
